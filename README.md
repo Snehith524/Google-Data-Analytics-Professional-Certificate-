@@ -7,7 +7,8 @@ Sure! Below is your provided content rewritten in a **student-friendly tone** an
 # 🎓 My Experience with the Google Data Analytics Professional Certificate
 
 
----[Coursera EYESZ75PVG5G.pdf](https://github.com/user-attachments/files/20864241/Coursera.EYESZ75PVG5G.pdf)
+--- ![image](https://github.com/user-attachments/assets/2bdd23de-aeaf-43bb-b0cc-5590c3c5486b)
+
 
 
 ## 📌 Overview
